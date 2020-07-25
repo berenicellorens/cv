@@ -8,7 +8,7 @@ Berenice Llorens is a composer, performer, poet, and dj from Córdoba, Argentina
 
 - [Soundcloud](https://soundcloud.com/berenicellorens)
 - [Bandcamp](https://berenicellorens.bandcamp.com)
-- [Mixcloud](https://www.mixcloud.com/Berenicecream)
+- [Berenicecream](https://www.mixcloud.com/Berenicecream)
 
 ### Videoarte
 
@@ -20,27 +20,26 @@ Berenice Llorens is a composer, performer, poet, and dj from Córdoba, Argentina
 
 ### Arte Gráfico
 
-- [Rayaduras](https://www.instagram.com/rayaduras)
+- [@rayaduras](https://www.instagram.com/rayaduras)
 
 
 ### Social
 
-- [Instagram](https://www.instagram.com/berenicellorens)
+- [@berenicellorens](https://www.instagram.com/berenicellorens)
 - [Facebook](https://www.facebook.com/berenicellorens)
 - [Twitter](https://twitter.com/berenicellorens)
 
 
 ## Dúos
 
-### Marmotas Dreams
+### [@marmotasdreams](https://www.instagram.com/marmotasdreams)
 
 - [Pequeño Kimono](https://berenicellorens.bandcamp.com/album/peque-o-kimono)
-- [Instagram](https://www.instagram.com/marmotasdreams)
 
-### SoBeryNice
+
+### [@soberynice](https://www.instagram.com/soberynice)
 
 - [Mixcloud](https://www.mixcloud.com/SoBeryNice)
-- [Instagram](https://www.instagram.com/soberynice)
 
 ## Videos
 
