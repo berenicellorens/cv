@@ -1,12 +1,11 @@
 # Berenice Llorens
 
-Experimental: [Soundcloud](https://soundcloud.com/berenicellorens)  
-Albums: [Bandcamp](https://berenicellorens.bandcamp.com)  
+Experimental: [Soundcloud](https://soundcloud.com/berenicellorens) - [Bandcamp](https://berenicellorens.bandcamp.com)  
 DJ: [Berenicecream](https://www.mixcloud.com/Berenicecream)  
 Videoarte: [YouTube](https://www.youtube.com/channel/UCop84-W9fYAEaZfICstuvMA)  
-Poesía: [La Cursividad](http://berenicellorens.blogspot.com)  
-Arte: [Rayaduras](https://www.instagram.com/rayaduras)  
-Instagram: [@berenicellorens](https://www.instagram.com/berenicellorens)  
+Poesía: [La Cursividad](http://berenicellorens.blogspot.com) - [#blabladuriasdeberenice](https://www.instagram.com/explore/tags/blabladuriasdeberenice/)  
+Arte: [Rayaduras](https://www.instagram.com/rayaduras) - [#berydual](https://www.instagram.com/explore/tags/berydual)  
+Instagram: [@berenicellorens](https://www.instagram.com/berenicellorens) - [#berenicemusic](https://www.instagram.com/explore/tags/berenicemusic)  
 Facebook: [@berenicellorens](https://www.facebook.com/berenicellorens)  
 Twitter: [@berenicellorens](https://twitter.com/berenicellorens)  
 
