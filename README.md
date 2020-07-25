@@ -10,7 +10,13 @@ Instagram: [@berenicellorens](https://www.instagram.com/berenicellorens)
 Facebook: [@berenicellorens](https://www.facebook.com/berenicellorens)  
 Twitter: [@berenicellorens](https://twitter.com/berenicellorens)  
 
-## Duo
+## Discos Solistas
+
+[C.uno](https://berenicellorens.bandcamp.com/album/c-uno)  
+[Sirenas || - Sesiones Remotas Kriptonia (live set)](https://berenicellorens.bandcamp.com/track/sirenas-ii-sesiones-remotas-kripton-a-live-set)    
+[Improlija](https://berenicellorens.bandcamp.com/album/improlija)
+
+## Dúos
 
 ### [@marmotasdreams](https://www.instagram.com/marmotasdreams)  
 Album: [Pequeño Kimono](https://berenicellorens.bandcamp.com/album/peque-o-kimono)
