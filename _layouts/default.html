@@ -19,7 +19,7 @@
 
         <img src="{{site.logo}}" alt="Logo" />
         
-        <p>{{ default: site.github.project_tagline }}</p>
+        <p>{{ site.description | default: site.github.project_tagline }}</p>
 
         
       </header>
