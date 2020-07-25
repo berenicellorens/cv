@@ -1,8 +1,4 @@
-# Berenice Llorens
-
 Berenice Llorens is a composer, performer, poet, and dj from Córdoba, Argentina. Her work has been performed at La Cúpula Galería de Arte, and she is developing work for the virtual label Kriptonia. As a dj she has worked with @visicapiscis_arte and performed on multiple locations around Córdoba. She performs solo, with voice and guitar, and her most recent duo is called Marmota's Dreams with Constanza Pellici.
-
-## Links
 
 ### Música
 
@@ -28,7 +24,6 @@ Berenice Llorens is a composer, performer, poet, and dj from Córdoba, Argentina
 - [@berenicellorens](https://www.instagram.com/berenicellorens)
 - [Facebook](https://www.facebook.com/berenicellorens)
 - [Twitter](https://twitter.com/berenicellorens)
-
 
 ## Dúos
 
