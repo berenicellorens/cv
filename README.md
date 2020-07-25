@@ -1,29 +1,24 @@
-### Música
+# Berenice Llorens
 
-- [Soundcloud](https://soundcloud.com/berenicellorens)
-- [Bandcamp](https://berenicellorens.bandcamp.com)
-- [Berenicecream](https://www.mixcloud.com/Berenicecream)
+Experimental: [Soundcloud](https://soundcloud.com/berenicellorens)
 
-### Videoarte
+Albums: [Bandcamp](https://berenicellorens.bandcamp.com)
 
-- [YouTube](https://www.youtube.com/channel/UCop84-W9fYAEaZfICstuvMA)
+DJ: [Berenicecream](https://www.mixcloud.com/Berenicecream)
 
-### Poesía
+Videoarte: [YouTube](https://www.youtube.com/channel/UCop84-W9fYAEaZfICstuvMA)
 
-- [La Cursividad](http://berenicellorens.blogspot.com)
+Poesía: [La Cursividad](http://berenicellorens.blogspot.com)
 
-### Arte Gráfico
+Arte: [Rayaduras](https://www.instagram.com/rayaduras)
 
-- [@rayaduras](https://www.instagram.com/rayaduras)
+Instagram: [@berenicellorens](https://www.instagram.com/berenicellorens)
 
+Facebook: [@berenicellorens](https://www.facebook.com/berenicellorens)
 
-### Social
+Twitter: [@berenicellorens](https://twitter.com/berenicellorens)
 
-- [@berenicellorens](https://www.instagram.com/berenicellorens)
-- [Facebook](https://www.facebook.com/berenicellorens)
-- [Twitter](https://twitter.com/berenicellorens)
-
-## Dúos
+## Duo
 
 ### [@marmotasdreams](https://www.instagram.com/marmotasdreams)
 
