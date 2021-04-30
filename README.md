@@ -1,6 +1,6 @@
 # Berenice Llorens
 
-Spotify: (https://open.spotify.com/artist/1wkoEOAEYnEflO8as4GCPG?si=3NvtjUmPSIyR4BTm6Mt3fA)
+Spotify: (https://open.spotify.com/artist/1wkoEOAEYnEflO8as4GCPG?si=3NvtjUmPSIyR4BTm6Mt3fA)  
 Experimental: [Soundcloud](https://soundcloud.com/berenicellorens) - [Bandcamp](https://berenicellorens.bandcamp.com)  
 DJ: [Berenicecream](https://www.mixcloud.com/Berenicecream)  
 Videoarte: [YouTube](https://www.youtube.com/channel/UCop84-W9fYAEaZfICstuvMA)  
@@ -12,7 +12,7 @@ Twitter: [@berenicellorens](https://twitter.com/berenicellorens)
 
 ## Ep & singles solista
 
-[Cold Fight II](https://open.spotify.com/track/7KFWNFUM67CwfGRFH85azr?si=fb93d8b90e1841ee)
+[Cold Fight II](https://open.spotify.com/track/7KFWNFUM67CwfGRFH85azr?si=fb93d8b90e1841ee)  
 [C.uno](https://berenicellorens.bandcamp.com/album/c-uno)  
 [Sirenas || - Sesiones Remotas Kriptonia (live set)](https://berenicellorens.bandcamp.com/track/sirenas-ii-sesiones-remotas-kripton-a-live-set)    
 [Improlija](https://berenicellorens.bandcamp.com/album/improlija)   
@@ -26,13 +26,13 @@ Pequeño Kimono:(https://youtu.be/PotezC-hAy4)
 
 ### [@soberynice](https://www.instagram.com/soberynice)  
 
-Acido Cítrico-live-Original mix : (https://soundcloud.com/soberynice/acido-citrico-original-mix-soberynice-live)
+Acido Cítrico-live-Original mix : (https://soundcloud.com/soberynice/acido-citrico-original-mix-soberynice-live)  
 Limonada: [1](https://www.mixcloud.com/SoBeryNice/limonada-12), [2](https://www.mixcloud.com/SoBeryNice/limonada-2)  
 Mixcloud: [SoBeryNice](https://www.mixcloud.com/SoBeryNice)
 
 ## Videos
 
-[Dj set - The Great Escape - Mar de las Pampas](https://youtu.be/jkYdjpZ7_98)
+[Dj set - The Great Escape - Mar de las Pampas](https://youtu.be/jkYdjpZ7_98)  
 [Marmota's Dreams at La Cúpula](https://www.facebook.com/lacupulagaleria/videos/425314798350258)  
 [Nado](https://www.youtube.com/watch?v=qkasKoS-5qQ)  
 [Inmaculada Improvisacion - Chúcara](https://www.youtube.com/watch?v=er3VMQ7OnqM)  
