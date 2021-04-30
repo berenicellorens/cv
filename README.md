@@ -1,7 +1,7 @@
 # Berenice Llorens
 
-Spotify: (https://open.spotify.com/artist/1wkoEOAEYnEflO8as4GCPG?si=3NvtjUmPSIyR4BTm6Mt3fA)  
-Experimental: [Soundcloud](https://soundcloud.com/berenicellorens) - [Bandcamp](https://berenicellorens.bandcamp.com)  
+Discografía: [Bandcamp](https://berenicellorens.bandcamp.com) - [Spotify] (https://open.spotify.com/artist/1wkoEOAEYnEflO8as4GCPG?si=3NvtjUmPSIyR4BTm6Mt3fA)  
+Experimental: [Soundcloud](https://soundcloud.com/berenicellorens)    
 DJ: [Berenicecream](https://www.mixcloud.com/Berenicecream)  
 Videoarte: [YouTube](https://www.youtube.com/channel/UCop84-W9fYAEaZfICstuvMA)  
 Poesía: [La Cursividad](http://berenicellorens.blogspot.com) - [#blabladuriasdeberenice](https://www.instagram.com/explore/tags/blabladuriasdeberenice/)  
@@ -21,12 +21,12 @@ Twitter: [@berenicellorens](https://twitter.com/berenicellorens)
 ## Dúos
 
 ### [@marmotasdreams](https://www.instagram.com/marmotasdreams)  
-Album: [Pequeño Kimono](https://berenicellorens.bandcamp.com/album/peque-o-kimono)
-Pequeño Kimono:(https://youtu.be/PotezC-hAy4)
+Album: [Pequeño Kimono](https://berenicellorens.bandcamp.com/album/peque-o-kimono)  
+Pequeño Kimono: [Audiovisual por Sebastian Durán] (https://youtu.be/PotezC-hAy4)
 
 ### [@soberynice](https://www.instagram.com/soberynice)  
 
-Acido Cítrico-live-Original mix : (https://soundcloud.com/soberynice/acido-citrico-original-mix-soberynice-live)  
+Tracks : [Acido Cítrico-live-Original mix](https://soundcloud.com/soberynice/acido-citrico-original-mix-soberynice-live)    
 Limonada: [1](https://www.mixcloud.com/SoBeryNice/limonada-12), [2](https://www.mixcloud.com/SoBeryNice/limonada-2)  
 Mixcloud: [SoBeryNice](https://www.mixcloud.com/SoBeryNice)
 
