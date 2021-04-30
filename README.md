@@ -1,6 +1,6 @@
 # Berenice Llorens
 
-Discografía: [Bandcamp](https://berenicellorens.bandcamp.com) - [Spotify] (https://open.spotify.com/artist/1wkoEOAEYnEflO8as4GCPG?si=3NvtjUmPSIyR4BTm6Mt3fA)  
+Discografía: [Bandcamp](https://berenicellorens.bandcamp.com) - [Spotify](https://open.spotify.com/artist/1wkoEOAEYnEflO8as4GCPG?si=3NvtjUmPSIyR4BTm6Mt3fA)  
 Experimental: [Soundcloud](https://soundcloud.com/berenicellorens)    
 DJ: [Berenicecream](https://www.mixcloud.com/Berenicecream)  
 Videoarte: [YouTube](https://www.youtube.com/channel/UCop84-W9fYAEaZfICstuvMA)  
@@ -22,7 +22,7 @@ Twitter: [@berenicellorens](https://twitter.com/berenicellorens)
 
 ### [@marmotasdreams](https://www.instagram.com/marmotasdreams)  
 Album: [Pequeño Kimono](https://berenicellorens.bandcamp.com/album/peque-o-kimono)  
-Pequeño Kimono: [Audiovisual por Sebastian Durán] (https://youtu.be/PotezC-hAy4)
+Pequeño Kimono: [Audiovisual por Sebastian Durán](https://youtu.be/PotezC-hAy4)
 
 ### [@soberynice](https://www.instagram.com/soberynice)  
 
