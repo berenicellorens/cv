@@ -1,4 +1,3 @@
-# Berenice Llorens
 
 Discografía: [Bandcamp](https://berenicellorens.bandcamp.com) - [Spotify](https://open.spotify.com/artist/1wkoEOAEYnEflO8as4GCPG?si=3NvtjUmPSIyR4BTm6Mt3fA)  
 Experimental: [Soundcloud](https://soundcloud.com/berenicellorens)    
