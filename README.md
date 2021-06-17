@@ -22,7 +22,7 @@ Mixcloud: [SoBeryNice](https://www.mixcloud.com/SoBeryNice)
 ## Videoarte
 
 [Nado](https://www.youtube.com/watch?v=qkasKoS-5qQ)  
-[Taurus II](https://www.youtube.com/watch?v=vwmWGtqHsmk&t=10s&ab_channel=BereniceLLorens) 
+[Taurus II](https://www.youtube.com/watch?v=vwmWGtqHsmk&t=10s&ab_channel=BereniceLLorens)  
 [Primavera 6](https://www.youtube.com/watch?v=kBjCFCMl2kc)  
 [Primer tiempo - ImProlija](https://www.youtube.com/watch?v=OG7MosWl3fo)  
 
