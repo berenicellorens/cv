@@ -51,4 +51,4 @@ Twitter: [@berenicellorens](https://twitter.com/berenicellorens)
 
 ## Contacto
 
-E-mail: [@berenicellorens](berenicellorens@gmail.com)
+E-mail: [berenicellorens@gmail.com]
