@@ -45,7 +45,7 @@ Arte: [Rayaduras](https://www.instagram.com/rayaduras) - [#berydual](https://www
 
 ## Redes
 
-Web: [@berenicellorens](https://berenicellorens.github.io)
+Web: [@berenicellorens](https://berenicellorens.github.io)   
 Instagram: [@berenicellorens](https://www.instagram.com/berenicellorens) - [#berenicemusic](https://www.instagram.com/explore/tags/berenicemusic)  
 Facebook: [@berenicellorens](https://www.facebook.com/berenicellorens)  
 Twitter: [@berenicellorens](https://twitter.com/berenicellorens) 
