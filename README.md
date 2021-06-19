@@ -34,7 +34,6 @@ Mixcloud: [SoBeryNice](https://www.mixcloud.com/SoBeryNice)
 [Marmota's Dreams at La Cúpula](https://www.facebook.com/lacupulagaleria/videos/425314798350258)  
 [Sirenas || - Sesiones Remotas Kriptonia (live set)](https://berenicellorens.bandcamp.com/track/sirenas-ii-sesiones-remotas-kripton-a-live-set) 
 
-
 ## Plataformas
 
 Discografía: [Bandcamp](https://berenicellorens.bandcamp.com) - [Spotify](https://open.spotify.com/artist/1wkoEOAEYnEflO8as4GCPG?si=3NvtjUmPSIyR4BTm6Mt3fA) -   
