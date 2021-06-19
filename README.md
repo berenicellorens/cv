@@ -3,7 +3,7 @@
 ## Ep & singles solista
 
 [Cold Fight II](https://open.spotify.com/track/7KFWNFUM67CwfGRFH85azr?si=fb93d8b90e1841ee)  
-[Kriptonîa Split vol. XVI](https://kriptonia.bandcamp.com/album/kripton-a-split-vol-xvi) 
+[Kriptonîa Split vol. XVI](https://kriptonia.bandcamp.com/album/kripton-a-split-vol-xvi)  
 [Luresis](https://berenicellorens.bandcamp.com/album/luresis)  
 [C.uno](https://berenicellorens.bandcamp.com/album/c-uno)   
 [Improlija](https://berenicellorens.bandcamp.com/album/improlija)   
