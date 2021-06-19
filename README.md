@@ -8,6 +8,13 @@
 [C.uno](https://berenicellorens.bandcamp.com/album/c-uno)   
 [Improlija](https://berenicellorens.bandcamp.com/album/improlija)   
 
+## Videoarte
+
+[Nado](https://www.youtube.com/watch?v=qkasKoS-5qQ)  
+[Taurus II](https://www.youtube.com/watch?v=vwmWGtqHsmk&t=10s&ab_channel=BereniceLLorens)  
+[Primavera 6](https://www.youtube.com/watch?v=kBjCFCMl2kc)  
+[Primer tiempo - ImProlija](https://www.youtube.com/watch?v=OG7MosWl3fo)  
+
 ## Dúos
 
 ### [@marmotasdreams](https://www.instagram.com/marmotasdreams)  
@@ -19,13 +26,6 @@ Pequeño Kimono: [Videoarte por Sebastian Durán](https://youtu.be/PotezC-hAy4)
 Tracks : [Acido Cítrico-live-Original mix](https://soundcloud.com/soberynice/acido-citrico-original-mix-soberynice-live)    
 Limonada: [1](https://www.mixcloud.com/SoBeryNice/limonada-12), [2](https://www.mixcloud.com/SoBeryNice/limonada-2)  
 Mixcloud: [SoBeryNice](https://www.mixcloud.com/SoBeryNice)
-
-## Videoarte
-
-[Nado](https://www.youtube.com/watch?v=qkasKoS-5qQ)  
-[Taurus II](https://www.youtube.com/watch?v=vwmWGtqHsmk&t=10s&ab_channel=BereniceLLorens)  
-[Primavera 6](https://www.youtube.com/watch?v=kBjCFCMl2kc)  
-[Primer tiempo - ImProlija](https://www.youtube.com/watch?v=OG7MosWl3fo)  
 
 ## Performance 
 
