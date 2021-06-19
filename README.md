@@ -12,7 +12,7 @@
 
 ### [@marmotasdreams](https://www.instagram.com/marmotasdreams)  
 Album: [Pequeño Kimono](https://berenicellorens.bandcamp.com/album/peque-o-kimono)  
-Pequeño Kimono: [Audiovisual por Sebastian Durán](https://youtu.be/PotezC-hAy4)
+Pequeño Kimono: [Videoarte por Sebastian Durán](https://youtu.be/PotezC-hAy4)
 
 ### [@soberynice](https://www.instagram.com/soberynice)  
 
